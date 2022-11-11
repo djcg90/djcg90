@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @djcg90
+- 👀 I’m interested in structural engineering
